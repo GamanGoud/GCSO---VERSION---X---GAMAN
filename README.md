@@ -1,1 +1,0 @@
-# GCSO---VERSION---X---GAMAN
